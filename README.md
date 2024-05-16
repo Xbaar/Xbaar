@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Xbaar
 - 👀 NebulaMC
-- 🌱 I’m currently learning nosexdxd
-- 💞️ jajaj no
+- 🌱 tres
+- 💞️ ¿?
 - 📫 Reach me via discord, @xbaar
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: idk
